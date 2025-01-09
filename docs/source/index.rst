@@ -1,7 +1,7 @@
 RR88 - TRANG CHỦ CHÍNH THỨC NHÀ CÁI RR88.COM
 ===================================
 
-RR88 là nền tảng cá cược trực tuyến uy tín với nhiều trò chơi đa dạng như casino, thể thao, bắn cá và game bài. Với giao diện được thiết kế đơn giản, thân thiện và bắt mắt thu hút được đông đảo người chơi. Mang lại trải nghiệm cực kỳ thú vị cũng như chế độ bảo mật thông tin khách hàng tuyệt đối.
+`RR88 <https://rr8818.net/>`_ là nền tảng cá cược trực tuyến uy tín với nhiều trò chơi đa dạng như casino, thể thao, bắn cá và game bài. Với giao diện được thiết kế đơn giản, thân thiện và bắt mắt thu hút được đông đảo người chơi. Mang lại trải nghiệm cực kỳ thú vị cũng như chế độ bảo mật thông tin khách hàng tuyệt đối.
 
 Thông tin chi tiết: 
 
